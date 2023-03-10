@@ -1,0 +1,1 @@
+The OJT was very challenging but enjoyable and getting new learn about anything in tech world. First, I thought that being computer science was all about logic and coding but in reality it all about how can you proceed and experience new features.
